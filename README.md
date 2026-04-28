@@ -5,4 +5,4 @@ O meu trabalho e sobre uma dinamica de evolução de personagens digitais chamad
 
 Tem um sistema de Combinações existe a palavra jogrees
 
-fora o WarGreymon + MetalGarurumon = Omegamon que a versão original do codigo 
+fora o WarGreymon + MetalGarurumon = Omegamon que a versão original do codigo o resto de descobre 
